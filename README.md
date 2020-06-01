@@ -1,1 +1,1 @@
-# DuchowoscPolska
+# Duchowość
